@@ -1,9 +1,9 @@
 # ayprintsatelier.com
-***Branding***
-***Graphic Designing***
-***Printing***
-***Souvenirs***
-***Frame***
+***Branding*** |
+***Graphic Designing*** |
+***Printing*** |
+***Souvenirs*** |
+***Frame*** |
 
 ## AYPRINTS ATELIER
 
